@@ -1,5 +1,11 @@
 ## Wip
 
+<p> Look at you! you found my sys github thing</p>
+
+<p> Anyways we are friendly and would love to have more sys friends if we were being honest</p>
+
+<p> So if you are a sys and ya ant younger then 15 come talk ta us <3</p>
+
 <!--
 **Wolverines-Hubby/Wolverines-Hubby** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
